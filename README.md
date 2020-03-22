@@ -17,10 +17,12 @@ Sewing
 
 Duncan Waving
 
-![https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/84cf7e0b8d5f1122a66cdedbe333ac99/VID-20200322-WA0000.mp4](https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/84cf7e0b8d5f1122a66cdedbe333ac99/VID-20200322-WA0000.mp4)
+[https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/84cf7e0b8d5f1122a66cdedbe333ac99/VID-20200322-WA0000.mp4](https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/84cf7e0b8d5f1122a66cdedbe333ac99/VID-20200322-WA0000.mp4)
+
 
 https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/84cf7e0b8d5f1122a66cdedbe333ac99/VID-20200322-WA0000.mp4
-![](https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/58553bdc9405c11a5a51ae81a3e1a219/VID-20200322-WA0001.mp4)
+
+[](https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/58553bdc9405c11a5a51ae81a3e1a219/VID-20200322-WA0001.mp4)
 
 duncan 2
 https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/58553bdc9405c11a5a51ae81a3e1a219/VID-20200322-WA0001.mp4
