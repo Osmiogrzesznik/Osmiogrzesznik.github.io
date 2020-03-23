@@ -10,10 +10,10 @@ Sunny, relaxed weekend filled was thus with undoing original stitches of Duncan,
 
 
 Bag full of duncan
-![](https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/0dcfcc27e4c2fd73b17173c444360ca5/20200322_173810.jpg)
+![https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/0dcfcc27e4c2fd73b17173c444360ca5/20200322_173810.jpg](https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/0dcfcc27e4c2fd73b17173c444360ca5/20200322_173810.jpg)
 
 Bag full of plush
-![](https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/008e34b2de6ea9895c94ee9da3adc23f/20200322_215032.jpg)
+![https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/008e34b2de6ea9895c94ee9da3adc23f/20200322_215032.jpg](https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/008e34b2de6ea9895c94ee9da3adc23f/20200322_215032.jpg)
 
 Sewing 
 ![](https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/1a942990c73370c6616c248388480dbc/20200322_090408.jpg)
