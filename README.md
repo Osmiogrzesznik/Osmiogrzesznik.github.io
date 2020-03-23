@@ -1,5 +1,7 @@
 # Sewing in the sun
 
+![](https://trello-attachments.s3.amazonaws.com/5e6761c0278e490cf760c60a/5e77cda877057d607af067b6/ec9c37a5ab823ee9e57f7f07766af5d5/VID-20200322-WA0000_1.gif)
+
 Beautiful sunny weather on a weekend along with the self-isolation due to COVID-19 inspires to spend all day long in the garden... 
 
 ...sewing the robot. 
